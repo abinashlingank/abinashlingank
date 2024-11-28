@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi, I’m @Abinash lingan K<br>Interested in Automation, Artificial Intelligence, Machine learning, data Science and Neural Network.<br>Currently pursuing my UG @Chennai Institute Of Technology, chennai.<br>Seeking for good collabrative projects<br>Reach me @ +91 6384293362 <br/>
+Hi, I’m Abinash lingan K<br>Interested in Web Development, Software Automation, Artificial Intelligence, Machine learning, data Science and Neural Network.<br>Currently pursuing my UG @Chennai Institute Of Technology, chennai.<br>Seeking for good collabrative projects<br>Reach me @ +91 6384293362 <br/>
 [![](https://visitcount.itsvg.in/api?id=abinashlingank&icon=0&color=0)](https://visitcount.itsvg.in)
 
 
